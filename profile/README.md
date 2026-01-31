@@ -1,4 +1,4 @@
-## IEEPCO 👋
+## IEEPCO
 
 El  Instituto  Estatal,  es  un  organismo  público  autónomo  local  de  carácter  permanente, profesional en su desempeño, con personalidad jurídica y patrimonio propio, responsable de vigilar el cumplimiento de las disposiciones constitucionales y reglamentarias en materia electoral.
 
